@@ -2,7 +2,7 @@
 - 👀 I’m interested in music, literature, languages, cs
 - 🌱 I’m currently learning modern greek philology
 - 💞️ I’m looking to collaborate on literature, music, arts projects
-- 📫 How to reach me 
+- 📫 How to reach me insta/max.bober
 - 😄 Pronouns: he/his
 - ⚡ Fun fact: I play violin
 
